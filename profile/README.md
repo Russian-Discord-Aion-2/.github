@@ -4,9 +4,9 @@
 
 ### 🔗 Присоединяйся по ссылке
 
-**[https://discord.gg/PBg9HHX4Fm](https://discord.gg/PBg9HHX4Fm)**
+**[https://discord.gg/p9rSMZGMCK](https://discord.gg/p9rSMZGMCK)**
 
-**[https://discord.gg/PBg9HHX4Fm](https://discord.gg/PBg9HHX4Fm)**
+**[https://discord.gg/p9rSMZGMCK](https://discord.gg/p9rSMZGMCK)**
 
 
 ![screenshot](https://i.ytimg.com/vi/Xkel1_sb2hc/hq720.jpg?v=692ef792&sqp=CIDlvMkG-oaymwEhCK4FEIIDSFryq4qpAxMIARUAAAAAGAElAADIQj0AgKJD&rs=AOn4CLDjh-Yo1dfahSwXRiEMMzeHa_rGUQT)
@@ -25,7 +25,7 @@
 ## 📌 Как присоединиться
 
 Перейди по ссылке:
-👉 **[https://discord.gg/PBg9HHX4Fm](https://discord.gg/PBg9HHX4Fm)**
+👉 **[https://discord.gg/p9rSMZGMCK](https://discord.gg/p9rSMZGMCK)**
 и стань частью дружного сообщества **AION 2 RU**.
 
 ---
